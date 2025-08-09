@@ -7,6 +7,4 @@
 ![Image](https://i.ibb.co/jHPjRsb/IMG-5016.gif). ˡᵒᵛᵉ:ᵖʳᵒᵍʳᵃᵐⁱⁿᵍ,ʷᵃᵗᶜʰⁱⁿᵍ ᵒˡᵈ ᵛʰˢ ᵗᵃᵖᵉˢ,ʳᵉᵃᵈⁱⁿᵍ ᶜᵒᵐⁱᶜˢ/ᵐᵃⁿᵍᵃ...
 
 
-
-       
-![small Image](https://github.com/user-attachments/assets/e3b90bad-57f6-4606-90e6-f7c41dd677f2)
+![Image]
